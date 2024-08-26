@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mde-an
+- 👀 I’m interested in psychology
+- 🌱 I’m currently learning Mandarin Chinese
+- 📫 How to reach me: don't
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I can do pointe ballet
